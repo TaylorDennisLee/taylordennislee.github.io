@@ -1,3 +1,3 @@
-# taylordennislee.github.io
+### taylordennislee.github.io
 
-[Click Here](taylordennislee.github.io)
+[Click Here](https://taylordennislee.github.io)
